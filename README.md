@@ -1,0 +1,1 @@
+# Krokoms kommun
